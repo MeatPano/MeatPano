@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MeatPano
+- 👀 I’m interested in SUPER TUX
+- 🌱 I’m currently learning C+, lua, java, css, html etc.
+- 💞️ I’m looking to collaborate on your mom
+- 📫 How to reach me Netpano omg!!!#9220
